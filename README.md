@@ -16,6 +16,6 @@ High-converting landing page designed to transform Pinterest and ecommerce traff
 
 ## Contact
 WhatsApp: https://wa.me/917990984323  
-Email: contact@yourdomain.com
+Email: auraaaistudioo@gmail.com
 
 © 2026 Premium AI Video Studio
